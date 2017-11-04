@@ -1,1 +1,0 @@
-# Blog-wordpress-theme
